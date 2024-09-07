@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently a CS Grad Student, A Graduate Teaching Assistant at UCF<br>Learning to be a Machine Learning Engineer.<br>Any data opening about the Internships Helps,<br>Ping me - Go646607@ucf.edu <br>
+Currently a CS Grad Student, A Graduate Teaching Assistant at UCF<br>Learning to be a Machine Learning Engineer.<br>Any information  about the opening of Internships Helps,<br>Ping me - Go646607@ucf.edu <br>
 
 
 ## 🌐 Socials:
